@@ -27,8 +27,5 @@ FJF的知识库,不断完善中...
 
 ![](https://tva1.sinaimg.cn/large/00831rSTly1gcy14hihrqj30vq0u0dm2.jpg)
 
- 
-http://s10.sinaimg.cn/mw690/002ZbDGVzy7oUPrcTmF49&690
-  
 
 ### 详细知识
