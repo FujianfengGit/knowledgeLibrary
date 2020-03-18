@@ -27,7 +27,7 @@ FJF的知识库,不断完善中...
 
 ### 知识图谱
 
-![image-20200318115357855](/Users/fujianfeng4/Library/Application Support/typora-user-images/image-20200318115357855.png)
+![](https://tva1.sinaimg.cn/large/00831rSTly1gcy14hihrqj30vq0u0dm2.jpg)
 
  
 
